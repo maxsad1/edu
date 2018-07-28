@@ -66,6 +66,15 @@ http://dirclub.ru/lyubimye-knigi-gendirektorov/
 1. https://puzzle-english.com/
 2. http://lingualeo.com/
 
+http://puzzle-english.com/
+
+https://geekbrains.ru/
+http://www.translate.ru/gramm/rules/
+
+
+https://ororo.tv/ru/channels#_=_
+
+
 
 coupon_id=3&yclid=5288976620555606586&redirect_to=%2F%3Fcoupon_id%3D3%26yclid%3D5288976620555606586
 
