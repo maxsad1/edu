@@ -63,7 +63,11 @@ http://nashol.com/knigi-po-angliiskomu-yaziku/#po_klassam_9
 http://dirclub.ru/lyubimye-knigi-gendirektorov/
 
 Английский
-https://puzzle-english.com/?coupon_id=3&yclid=5288976620555606586&redirect_to=%2F%3Fcoupon_id%3D3%26yclid%3D5288976620555606586
+1. https://puzzle-english.com/
+2. http://lingualeo.com/
+
+
+coupon_id=3&yclid=5288976620555606586&redirect_to=%2F%3Fcoupon_id%3D3%26yclid%3D5288976620555606586
 
 
 Аудиокниги
