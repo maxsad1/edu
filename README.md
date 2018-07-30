@@ -65,10 +65,16 @@ http://dirclub.ru/lyubimye-knigi-gendirektorov/
 Английский
 1. https://puzzle-english.com/
 2. http://lingualeo.com/
+3. https://www.duolingo.com/
+4. https://geekbrains.ru/
+5. https://babeleo.com
+6. https://www.learnathome.ru/
+7. https://www.lumosity.com
 
-http://puzzle-english.com/
+Список
+https://learn-english.zeef.com/ru/yana.ledeneva
 
-https://geekbrains.ru/
+
 http://www.translate.ru/gramm/rules/
 
 
