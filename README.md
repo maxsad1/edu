@@ -63,13 +63,7 @@ http://nashol.com/knigi-po-angliiskomu-yaziku/#po_klassam_9
 http://dirclub.ru/lyubimye-knigi-gendirektorov/
 
 Английский
-1. https://puzzle-english.com/
-2. http://lingualeo.com/
-3. https://www.duolingo.com/
-4. https://geekbrains.ru/
-5. https://babeleo.com
-6. https://www.learnathome.ru/
-7. https://www.lumosity.com
+
 
 Список
 https://learn-english.zeef.com/ru/yana.ledeneva
